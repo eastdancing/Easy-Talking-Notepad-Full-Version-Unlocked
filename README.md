@@ -1,0 +1,1 @@
+# Easy-Talking-Notepad-Full-Version-Unlocked
